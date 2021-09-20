@@ -10,6 +10,7 @@ Daniel Ortiz <br />
 Vanessa Chu <br />
 Carlos Chavez <br />
 Eddie Briscoe <br />
+Rose De Sicilia <br />
 Alex Gomez <br />
 Steven Fernandez v2<br />
 Rebeca Martin <br />
