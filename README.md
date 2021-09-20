@@ -10,6 +10,7 @@ Daniel Ortiz <br />
 Vanessa Chu <br />
 Carlos Chavez <br />
 Eddie Briscoe <br />
+Enrique Valdes <br />
 Daniel R <br />
 Sage Pages <br />
 Rose De Sicilia <br />
